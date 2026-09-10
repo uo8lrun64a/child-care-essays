@@ -285,21 +285,21 @@ A：查 CDC 官网 SART 报告，确认 CAP/CLIA 双认证；中文合同需注�
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/uo8lrun64a/parenting-daily-tips/blob/main/20260910wiou/nswrisrust.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/pzngwecbnd.md)
-- [相关笔记](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/jntyjswouc.md)
-- [相关笔记](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/czsgnxylqm.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/qjwbwousur.md)
-- [相关笔记](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/wyxskpqfjy.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
+- [美国第三代试管婴儿全流程揭秘：成功率、费用与注意事项](https://github.com/uo8lrun64a/parenting-daily-tips/blob/main/20260910wiou/nswrisrust.md)
+- [美国第三代试管婴儿，成功率到底有多高对比国内真相曝光](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/pzngwecbnd.md)
+- [揭秘美国第三代试管婴儿：成功率背后的真相与避坑全攻略](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/jntyjswouc.md)
+- [美国第三代试管婴儿全流程手册：从签证到好孕，一站式指南](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/czsgnxylqm.md)
+- [美国第三代试管婴儿全流程干货指南：成功率、费用与避坑秘笈](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/qjwbwousur.md)
+- [美国第三代试管婴儿全攻略：一步步手把手帮你实现海外孕育梦](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/wyxskpqfjy.md)
+- [赴美第三代试管婴儿避坑指南：5个关键环节千万别踩雷](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
 
 ## 推荐站点
 
-- [点击查看](https://www.danqiushen.com/31.html)
-- [更多内容](https://www.danqiushen.com/160.html)
-- [查看详情](https://www.danqiushen.com/156.html)
-- [相关资讯](https://www.wuzhenzhi.cn/24.html)
-- [详情点击](https://www.wuzhenzhi.cn/66.html)
-- [延伸阅读](https://www.wuzhenzhi.cn/112.html)
+- [有做二代试管生男孩的吗？解析二代试管与胎儿性别那些事](https://www.wuzhenzhi.cn/110.html)
+- [国内、泰国、美国第三代试管婴儿怎么选？三代试管目的地全面对比](https://www.wuzhenzhi.cn/111.html)
+- [临沂能做三代试管吗？最新消息与申请条件全面解读](https://www.wuzhenzhi.cn/113.html)
+- [囊胚性别鉴定要多久出结果？PGT检测流程与时间周期全解析](https://www.wuzhenzhi.cn/114.html)
+- [第二代试管性别比例是多少？ICSI婴儿男女比例科学解读](https://www.wuzhenzhi.cn/115.html)
+- [三代试管龙凤胎好吗？PGT技术能实现龙凤胎吗一文说清](https://www.wuzhenzhi.cn/116.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
