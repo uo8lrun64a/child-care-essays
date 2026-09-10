@@ -287,23 +287,23 @@ CDC 2022 年报告显示，全美 448 家诊所共完成 193,948 例 IVF 周期�
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/uo8lrun64a/parenting-daily-tips/blob/main/20260910wiou/dgwjuxnxtr.md)
-- [相关笔记](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/iwxomcdoav.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/yfnpcpcsrz.md)
-- [相关笔记](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/uzdcztahhz.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/ibyvudpwjx.md)
-- [相关笔记](https://github.com/uo8lrun64a/parenting-daily-tips/blob/main/20260910wiou/nswrisrust.md)
+- [揭秘美国第三代试管婴儿全流程避坑指南：6大秘诀助你成功](https://github.com/uo8lrun64a/parenting-daily-tips/blob/main/20260910wiou/dgwjuxnxtr.md)
+- [揭秘美国第三代试管婴儿：高龄夫妻实现生育梦想的5大核心秘诀](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/iwxomcdoav.md)
+- [去美国做第三代试管婴儿这份5步避坑＋高成功率全攻略必须收藏！](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/yfnpcpcsrz.md)
+- [美国第三代试管婴儿攻略：成功率、费用、避坑秘籍一站式全解](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/uzdcztahhz.md)
+- [美国第三代试管婴儿全流程攻略：7大关键步骤助你海外怀孕无忧](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/ibyvudpwjx.md)
+- [美国第三代试管婴儿全流程揭秘：成功率、费用与注意事项](https://github.com/uo8lrun64a/parenting-daily-tips/blob/main/20260910wiou/nswrisrust.md)
 
 ## 推荐站点
 
-- [相关资讯](https://www.danqiushen.com/150.html)
-- [详情点击](https://www.danqiushen.com/32.html)
-- [点击查看](https://www.danqiushen.com/85.html)
-- [详情点击](https://www.danqiushen.com/130.html)
-- [点击查看](https://www.danqiushen.com/164.html)
-- [详情点击](https://www.wuzhenzhi.cn/93.html)
-- [推荐阅读](https://www.wuzhenzhi.cn/101.html)
-- [延伸阅读](https://www.wuzhenzhi.cn/138.html)
-- [查看详情](https://www.wuzhenzhi.cn/23.html)
+- [郴州可以做三代试管吗？最新消息与长沙三代试管婴儿黑市风险科普](https://www.wuzhenzhi.cn/102.html)
+- [江西供卵三代试管包成功是真的吗？南昌医院三代试管资质全解读](https://www.wuzhenzhi.cn/103.html)
+- [移植囊胚能吃苹果吗好吗？囊胚移植可以吃火龙果吗有影响吗](https://www.wuzhenzhi.cn/104.html)
+- [吉林省人民医院试管婴儿成功率高吗？长春吉大二院试管成功率解读](https://www.wuzhenzhi.cn/105.html)
+- [国内试管婴儿案例最新消息与进展：政策、技术与真实情况解读](https://www.wuzhenzhi.cn/106.html)
+- [移植后要注意些什么才能提高成功率呢？视频讲解全方位指南](https://www.wuzhenzhi.cn/107.html)
+- [长沙哪里可以做第三代试管婴儿？PGT技术适应症与非医疗性别选择的合法性说明](https://www.wuzhenzhi.cn/108.html)
+- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
+- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
