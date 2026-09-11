@@ -295,11 +295,21 @@ A：查 CDC 官网 SART 报告，确认 CAP/CLIA 双认证；中文合同需注�
 
 ## 推荐站点
 
-- [有做二代试管生男孩的吗？解析二代试管与胎儿性别那些事](https://www.wuzhenzhi.cn/110.html)
-- [国内、泰国、美国第三代试管婴儿怎么选？三代试管目的地全面对比](https://www.wuzhenzhi.cn/111.html)
-- [临沂能做三代试管吗？最新消息与申请条件全面解读](https://www.wuzhenzhi.cn/113.html)
-- [囊胚性别鉴定要多久出结果？PGT检测流程与时间周期全解析](https://www.wuzhenzhi.cn/114.html)
-- [第二代试管性别比例是多少？ICSI婴儿男女比例科学解读](https://www.wuzhenzhi.cn/115.html)
-- [三代试管龙凤胎好吗？PGT技术能实现龙凤胎吗一文说清](https://www.wuzhenzhi.cn/116.html)
+- [['https://www.dygsdyw.com/104332144463.html', '取卵啦啦啦\U0001fae3,国内人工代生机构,国内借卵生子哪里好']](https://www.dygsdyw.com/104332144463.html)
+- [['https://www.hghbjm.com/252.html', '做试管内膜薄移植成功率高吗？子宫内膜薄试管移植一定不能成功吗？']](https://www.hghbjm.com/252.html)
+- [['https://www.sdwmtgccl.cn/60708189926846.html', '试管助孕促排卵阶段详解：代怀与供卵代怀助孕方案与过程解析']](https://www.sdwmtgccl.cn/60708189926846.html)
+- [['https://www.ppmaas.com/guoneishiguanjigou/480.html', '代孕机构靠谱,得了子宫腺肌症能正常怀宝宝吗？子宫腺肌症能不能怀上小孩？']](https://www.ppmaas.com/guoneishiguanjigou/480.html)
+- [['https://www.sandwnot.com/322652224458.html', '辽宁三代试管婴儿大约多少钱']](https://www.sandwnot.com/322652224458.html)
+- [['https://www.cmanrxrr.cn/3321443659686.html', '2026年50岁借卵试管成功的人多吗？要花多少钱？,供卵代怀试管多少钱']](https://www.cmanrxrr.cn/3321443659686.html)
+- [['https://www.ewdboe.cn/318562263550.html', '湖北三代借卵试管助孕费用解析：辅助生殖技术与性别选择的合规考量']](https://www.ewdboe.cn/318562263550.html)
+- [['https://www.3899234.com/20250927-52.html', '代孕供卵费用&怀孕初期几周做b超最好怀孕B超检查什么']](https://www.3899234.com/20250927-52.html)
+- [['https://www.xmxinyhwzhs.cn/11397167726132.html', '韶关代生网供卵成功率高的医院有哪些,韶关代生网供卵成功率高的医院有两家']](https://www.xmxinyhwzhs.cn/11397167726132.html)
+- [['https://www.gyzhixiao.cn/502.html', '子宫积液影响怀孕吗？不要着急，进来看答案！']](https://www.gyzhixiao.cn/502.html)
+- [['https://www.jszgyh.com/309822723126.html', None]](https://www.jszgyh.com/309822723126.html)
+- [['https://www.syldezdhkj.cn/29472571629433.html', '湘潭哪里有卵子库？内附2026湘潭供卵试管热门医院排行榜 ,代孕如何选择性别']](https://www.syldezdhkj.cn/29472571629433.html)
+- [['https://www.cecigou.cn/zhengguidaiyunwang/20250928/14921.html', '孕妇产前要做哪些准备，产前准备物品清单大全']](https://www.cecigou.cn/zhengguidaiyunwang/20250928/14921.html)
+- [['https://www.cd-hssf.com/321640064472.html', '潍坊试管婴儿医院排名「正规推荐」潍坊试管婴儿费用是多少']](https://www.cd-hssf.com/321640064472.html)
+- [['https://www.esc45.com/67.html', '找人代生孩子-做试管婴儿前期需要调理身体']](https://www.esc45.com/67.html)
+- [['https://www.dyokx.com/gaolingzhuyun/210.html', '哈萨克斯坦借卵做试管代生价格，15万多已足够！']](https://www.dyokx.com/gaolingzhuyun/210.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
