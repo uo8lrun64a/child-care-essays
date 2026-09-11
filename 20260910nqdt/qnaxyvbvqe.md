@@ -296,14 +296,17 @@ CDC 2022 年报告显示，全美 448 家诊所共完成 193,948 例 IVF 周期�
 
 ## 推荐站点
 
-- [郴州可以做三代试管吗？最新消息与长沙三代试管婴儿黑市风险科普](https://www.wuzhenzhi.cn/102.html)
-- [江西供卵三代试管包成功是真的吗？南昌医院三代试管资质全解读](https://www.wuzhenzhi.cn/103.html)
-- [移植囊胚能吃苹果吗好吗？囊胚移植可以吃火龙果吗有影响吗](https://www.wuzhenzhi.cn/104.html)
-- [吉林省人民医院试管婴儿成功率高吗？长春吉大二院试管成功率解读](https://www.wuzhenzhi.cn/105.html)
-- [国内试管婴儿案例最新消息与进展：政策、技术与真实情况解读](https://www.wuzhenzhi.cn/106.html)
-- [移植后要注意些什么才能提高成功率呢？视频讲解全方位指南](https://www.wuzhenzhi.cn/107.html)
-- [长沙哪里可以做第三代试管婴儿？PGT技术适应症与非医疗性别选择的合法性说明](https://www.wuzhenzhi.cn/108.html)
-- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
-- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
+- [['https://www.sdxxy.cn/20250530-482.html', '代孕供卵机构,女性不孕导致试管婴儿的原因是什么！不孕不育试管婴儿会遗传']](https://www.sdxxy.cn/20250530-482.html)
+- [['https://www.dyokx.com/zhuyunxiangmu/97.html', '代怀价格表-好听的双胞胎名字，姓赵的龙凤胎名字']](https://www.dyokx.com/zhuyunxiangmu/97.html)
+- [['https://www.hghbjm.com/252.html', '做试管内膜薄移植成功率高吗？子宫内膜薄试管移植一定不能成功吗？']](https://www.hghbjm.com/252.html)
+- [['https://www.sdwmtgccl.cn/45350785526514.html', '2026年国内私人医院二代试管助孕费用深度解析：代生服务、代怀套餐与成功率考量']](https://www.sdwmtgccl.cn/45350785526514.html)
+- [['https://www.chengyanghg.cn/321.html', '郑州三代试管婴儿鲜胚移植可能性解析与助孕选择指南']](https://www.chengyanghg.cn/321.html)
+- [['https://www.hg00fj88.com/2153.html', '北京试管婴儿哪家好成功率是多少']](https://www.hg00fj88.com/2153.html)
+- [['https://www.jszgyh.com/103193943490.html', None]](https://www.jszgyh.com/103193943490.html)
+- [['https://www.dygsdyw.com/229670321009.html', '供卵试管联系:怀孕11周出现哪些症状和表现说明会生男孩？']](https://www.dygsdyw.com/229670321009.html)
+- [['https://www.sasksjob.com/519663162385.html', '成都试管助孕全攻略：详细解析助孕流程及常见问题']](https://www.sasksjob.com/519663162385.html)
+- [['https://www.cddyunw.com/515620114298.html', None]](https://www.cddyunw.com/515620114298.html)
+- [['https://www.monpun.com/2703752607961.html', '广州第三代试管婴儿：费用详解与医院推荐']](https://www.monpun.com/2703752607961.html)
+- [['https://www.ppmaas.com/baoshengnanhaishiguan/383.html', '贵州捐卵哪里捐生殖中心招聘要求高吗']](https://www.ppmaas.com/baoshengnanhaishiguan/383.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
