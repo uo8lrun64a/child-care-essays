@@ -316,14 +316,19 @@ A：出生即获美国护照，回国需办《旅行证》+出生证领事认证
 
 ## 推荐站点
 
-- [众安试管婴儿保险价格表解读：试管婴儿保险多少钱、医保报销一次怎么算](https://www.wuzhenzhi.cn/143.html)
-- [武汉市人民医院试管费用多少钱？试管婴儿费用构成与报销详解](https://www.wuzhenzhi.cn/144.html)
-- [试管婴儿成功分享经验的案例有哪些？真实案例与经验视频解读](https://www.wuzhenzhi.cn/145.html)
-- [广州省二人民医院试管成功率多少？显微取精广医三院成功率科普解读](https://www.wuzhenzhi.cn/146.html)
-- [北医三院三代试管费用高吗？费用构成与影响因素详细解读](https://www.wuzhenzhi.cn/147.html)
-- [三代试管生化两次有影响吗？原因分析与应对建议全解读](https://www.wuzhenzhi.cn/148.html)
-- [第三代试管婴儿技术怎么选医院？避开排名榜误区的实用指南](https://www.wuzhenzhi.cn/149.html)
-- [试管不成功查免疫要多少钱呀一次——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/16.html)
-- [北三医院试管婴儿费用大概多少钱一次啊——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/17.html)
+- [['https://www.jszgyh.com/105513538457.html', '最好试管代怀：做人流子宫内膜变薄吗']](https://www.jszgyh.com/105513538457.html)
+- [['https://www.chengyanghg.cn/333.html', '2026年郑州供卵试管婴儿费用及流程详解']](https://www.chengyanghg.cn/333.html)
+- [['https://www.luruihang.com/2070.html', '试管代生网：贵州第三代试管婴儿大概花费多少']](https://www.luruihang.com/2070.html)
+- [['https://www.cecigou.cn/daihuaiyunfuwu/20250928/15011.html', '什么体质容易怀龙凤胎（高龄女性怀孕）']](https://www.cecigou.cn/daihuaiyunfuwu/20250928/15011.html)
+- [['https://www.syldezdhkj.cn/12805801352238.html', '代怀孕网具体位置,代怀帮忙怀孩子,精卵刚刚结合的3大信号，出现3大信号就偷着乐吧']](https://www.syldezdhkj.cn/12805801352238.html)
+- [['https://www.sandwnot.com/121340940563.html', '辽宁做试管婴儿费用大高不高？辽宁省做试管婴儿的医院排名？']](https://www.sandwnot.com/121340940563.html)
+- [['https://www.xmxinyhwzhs.cn/33588674554454.html', '老公戒不掉烟，也可以备孕怀孕,国内借卵子中心，国内试管借卵']](https://www.xmxinyhwzhs.cn/33588674554454.html)
+- [['https://www.cmanrxrr.cn/1586728974650.html', None]](https://www.cmanrxrr.cn/1586728974650.html)
+- [['https://www.esc45.com/130.html', '2026沈阳做试管婴儿哪家医院成功率比较高？']](https://www.esc45.com/130.html)
+- [['https://www.sasksjob.com/426612018160.html', '北京地区试管助孕优选：权威医院与先进辅助生殖技术解析']](https://www.sasksjob.com/426612018160.html)
+- [['https://www.gyzhixiao.cn/196.html', '备孕多久才能怀孕，备孕到怀孕要多久']](https://www.gyzhixiao.cn/196.html)
+- [['https://www.eduency.com/304773336408.html', None]](https://www.eduency.com/304773336408.html)
+- [['https://www.sdxxy.cn/20250515-453.html', '子宫内膜12mm太厚移植不着床？代生机构价格表成功率可真别小瞧']](https://www.sdxxy.cn/20250515-453.html)
+- [['https://www.sjb493.cn/14693139137625.html', '沈阳菁华不孕不育医院怎么样？做代生条件成功率高吗？']](https://www.sjb493.cn/14693139137625.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
